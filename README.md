@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Zippo00
+- 👀 I’m interested in AI, Blockchain Technology, FinTech
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me - Twitter @LempinenM
+
